@@ -1,1 +1,0 @@
-# chery_site_receips
